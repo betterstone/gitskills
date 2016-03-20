@@ -1,1 +1,1 @@
-create a branch is so quick AND simple!
+create a branch is so quick and simple!
